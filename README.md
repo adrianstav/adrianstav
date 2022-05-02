@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @fortntie
+- 👋 Hi, I’m @fortnite
 - 👀 I’m interested in fortnite
 - 🌱 I’m currently learning fortnite
 - 💞️ I’m looking to collaborate on fortnite
